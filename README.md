@@ -6,7 +6,7 @@
 | ------ | ------ | ------ |
 | 91视频 | https://yy.oeeod.com/?code=yU2H&c=4514 | 全门类成人视频
 | 51品茶 | https://cg.aff005.app/?code=asrR9&c=4514 | 找楼凤外围的，本人约过靠谱
-| pilipili | https://pili.oeeod.com/?code=cNf2&c=4514 | 二次元成人资源
+| pilipili | https://pili.oeeod.com/?code=cNf2&c=4514 | 二次元H世界，福利姬，萝莉控不要错过
 | 蚂蚁加速器 | https://ant.aff005.app/c-4514/a-bpGsW | 翻墙神器，便宜好用
 | 91短视频 | https://dsp.aff005.app/chan-2702/aff-gCzxD | 成人抖音
 | 50度灰 | https://50.aff005.app/chan/h52237/d5NzV | 重口味成人视频
