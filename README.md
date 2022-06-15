@@ -4,7 +4,7 @@
 
 | APP名字 | 官网地址 | 介绍 |
 | ------ | ------ | ------ |
-| 91视频 | https://yy.oeeod.com/?code=yU2H&c=4514 | 综合性成人视频
+| 91视频 | https://yy.oeeod.com/?code=yU2H&c=4514 | 全门类成人视频
 | 51品茶 | https://cg.aff005.app/?code=asrR9&c=4514 | 找楼凤外围的，本人约过靠谱
 | pilipili | https://pili.oeeod.com/?code=cNf2&c=4514 | 二次元成人资源
 | 蚂蚁加速器 | https://ant.aff005.app/c-4514/a-bpGsW | 翻墙神器，便宜好用
